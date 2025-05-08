@@ -18,3 +18,9 @@
 **Anime Pause:**
 *The anime adaptation paused production to avoid catching up with the manga, which is now in its final arc.*
 
+**Episode**
+*170*
+
+**4**
+*Seasons*
+
