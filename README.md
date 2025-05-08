@@ -13,7 +13,7 @@
 *The series explores themes of perseverance, friendship, and the importance of believing in yourself, even when facing seemingly insurmountable odds.*
 
 **Manga Publication:**
-*The manga has been published in Weekly Shōnen Jump and Jump Giga. 
+*The manga has been published in Weekly Shōnen Jump and Jump Giga.* 
   
 **Anime Pause:**
 *The anime adaptation paused production to avoid catching up with the manga, which is now in its final arc.*
